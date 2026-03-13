@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOZA790414HVZMRN09
+GOZA790414HVZMRN09
